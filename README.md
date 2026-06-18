@@ -1,0 +1,1 @@
+# autoriserede-fysioterapeuter-morkhoj-fysioterapi-aps
